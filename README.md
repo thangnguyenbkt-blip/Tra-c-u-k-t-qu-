@@ -1,1 +1,1 @@
-# Tra-c-u-k-t-qu-
+# TRA CUU KET QUA
